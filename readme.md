@@ -1,4 +1,3 @@
-<img width="1536" height="2048" alt="1C3F0AB3-6C1F-41A4-A50E-1D163E418E02_1_102_o" src="https://github.com/user-attachments/assets/98799624-03b7-4741-9fa5-8b2178d69887" />
 Hey I'm Michael Nice to See You Here
 
 You Can Find More Info About Me Here:
